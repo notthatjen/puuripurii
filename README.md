@@ -1,1 +1,1 @@
-![Cover](https://media.giphy.com/media/LD8TdEcyuJxu0/giphy.gif)
+![Cover](https://media.giphy.com/media/26ufnwz3wDUli7GU0/giphy.gif)
